@@ -2,3 +2,4 @@
 
 ## Bahan
 - Indomie goreng Spicy Korean
+- Air Panas
